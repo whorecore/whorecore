@@ -1,5 +1,5 @@
 <p align="center"> <img width="300" <img src="https://komarev.com/ghpvc/?username=whorecores&color=000000&style=for-the-badge&label=view+count">
-<p align="center"> *my following r my alts. main is @cIovers*
+<p align="center"> *my following r my alts*
 
 ---
 
